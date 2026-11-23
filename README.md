@@ -1,1 +1,0 @@
-# Swar-Sadhika-Offline-Studio
